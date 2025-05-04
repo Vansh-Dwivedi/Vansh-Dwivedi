@@ -1,6 +1,6 @@
 Vansh Dwivedi
 9-Year-Old Fullstack Developer & Prompt Engineer
-Email: kalakaarstudios@gmail.com
+Email: vanshprogramming9@gmail.com
 Location: Jalandhar, India
 
 Profile Summary
